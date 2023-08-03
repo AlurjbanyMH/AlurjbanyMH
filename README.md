@@ -1,5 +1,1 @@
-- 🐐 Hi, I’m AlurjbanyMH
-- 👾 PlayStation: Alurjbany_HR
-- 📊 coding nerd 
-- 📧 Support: Barlibya655@gmail.com
-- 💬 YouTube: https://youtube.com/channel/UCQ736La2rMKJProWZx8BIeg
+nothin
